@@ -1,4 +1,4 @@
-this is ugly so still a wip 
+this is ugly so still a wip arts by xumimii_ and Jkhjmnhjkh on tt
 
 <div align="center">
 <img width="200" alt="Image" src="https://github.com/user-attachments/assets/2a097175-a452-40e6-92db-7b9a5b72b77b" align=center /><img width="200" alt="Image" src="https://github.com/user-attachments/assets/2a097175-a452-40e6-92db-7b9a5b72b77b" align=center /><img width="200" alt="Image" src="https://github.com/user-attachments/assets/2a097175-a452-40e6-92db-7b9a5b72b77b" align=center />
