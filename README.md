@@ -19,7 +19,7 @@ this is ugly so still a wip arts by xumimii_ and Jkhjmnhjkh on tt
   <img src="https://github.com/user-attachments/assets/b35b7502-26cf-473d-aee1-39da33e1a95c" width="130" alt="Direita" style="vertical-align: middle; display: inline-block; margin-left: 15px;">
 </div>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31okexrn33k3nq5hskjsixycfdgu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=121212&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31okexrn33k3nq5hskjsixycfdgu&redirect=true)ㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Beth+Ellen&size=17&duration=4900&pause=622&color=1E4ACF&center=false&width=435&lines=Just+give+me+some+space;That+sun+in+my+face;And+the+days+go+on%2C+and+on%2C+and+on%2C+and+on+)](https://git.io/typing-svg)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31okexrn33k3nq5hskjsixycfdgu&cover_image=true&theme=novatorem&show_offline=true&background_color=#000000&interchange=true&profanity=false&hide_remaster=false&bar_color=121212&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31okexrn33k3nq5hskjsixycfdgu&redirect=true)ㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Beth+Ellen&size=17&duration=4900&pause=622&color=1E4ACF&center=false&width=435&lines=Just+give+me+some+space;That+sun+in+my+face;And+the+days+go+on%2C+and+on%2C+and+on%2C+and+on+)](https://git.io/typing-svg)
 
 
 
